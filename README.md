@@ -4,3 +4,4 @@ whatever I said before, never believe it
 穷苦人很难翻身
 say sth to world web 3 is great
 so a little cute
+crazy
