@@ -9,3 +9,4 @@ maybe someone could tell me how to creat the title of crypto
 so， 也许我可以做一些改变
 情况已经很清晰了
 so good
+只做一个，专心做
