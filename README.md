@@ -6,3 +6,4 @@ say sth to world web 3 is great
 so a little cute
 crazy
 maybe someone could tell me how to creat the title of crypto
+yes
