@@ -3,6 +3,3 @@ baidu-beauty-search 是一个使用 Python 编写的简单网络爬虫工具，�
 whatever I said before, never believe it
 穷苦人很难翻身
 say sth to world web 3 is great
-so a little cute
-特别的你
-that is true?
