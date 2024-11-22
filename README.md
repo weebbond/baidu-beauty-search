@@ -4,5 +4,5 @@ whatever I said before, never believe it
 穷苦人很难翻身
 say sth to world web 3 is great
 颈椎怎么回事，还是疼啊
-一切都要做到保护自己，怎么保护自己，规则不能破坏，别被人抓住把柄
+一切都要做到保护自己，怎么保护自己，别被人抓住把柄
 可不可以一起走
